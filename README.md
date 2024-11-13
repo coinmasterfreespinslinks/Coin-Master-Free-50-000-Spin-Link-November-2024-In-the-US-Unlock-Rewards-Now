@@ -2,6 +2,8 @@
 
 **Attention Coin Master players in the US!** We've got an exciting and exclusive offer just for you. Get ready to take your gaming experience to the next level with a **FREE 50,000 Spins** in Coin Master! Yes, you heard that right – an amazing 50,000 spins, completely free, to boost your progress and fill your inventory with tons of coins, cards, pets, and more.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 The **Coin Master Free 50,000 Spin Link (November 2024)** is available for a limited time, so don’t miss out! Whether you’re a seasoned player or new to Coin Master, these spins will provide an incredible advantage to level up faster, build your village, and unlock rare rewards. Keep reading to learn how to claim your spins and make the most of this golden opportunity!
 
 ---
